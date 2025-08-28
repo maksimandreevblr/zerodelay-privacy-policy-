@@ -1,2 +1,0 @@
-# zerodelay-privacy-policy  
-Политика
